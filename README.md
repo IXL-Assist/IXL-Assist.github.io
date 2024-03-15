@@ -10,7 +10,7 @@ With IXL Assist, say goodbye to tedious practice sessions. For just \$1, unlock 
 
 No need to fuss over payments – we've got you covered. Simply use Cash App to make your payment, and let us take care of the rest. It's quick, it's easy, and it's budget-friendly. Focus on your learning while we handle the logistics.
 
-**Disclaimer:** Guiding Your Learning Journey
+## Disclaimer: Guiding Your Learning Journey
 
 While we take care of the legwork, it's important to remember that IXL Assist operates on an \"as is\" basis. We're here to support your learning journey, but ultimately, it's up to you to make the most of it. Stay informed and ensure compliance with your school's policies regarding third-party tools like ours.
 
