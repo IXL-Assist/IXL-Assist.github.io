@@ -1,14 +1,10 @@
 # Explore IXL Assist: Your Ultimate Learning Sidekick
 
-Welcome to IXL Assist, your gateway to effortless learning. We're not just any Discord bot – we're your personal assistant in conquering IXL practice sessions. Say hello to a world of streamlined learning, where the hard work is handled by us, all for just $1.
+Welcome to IXL Assist, your gateway to effortless learning. We're not just any Discord bot – we're your personal assistant in conquering IXL practice sessions. Say hello to a world of streamlined learning, where the hard work is handled by us.
 
 ## What We Offer
 
-With IXL Assist, say goodbye to tedious practice sessions. For just \$1, unlock 30 minutes of focused practice time effortlessly. Whether it's math or English at a 9-10th-grade level, we've got your back. Let us handle the heavy lifting while you reap the rewards.
-
-## Simplified Payment Process
-
-No need to fuss over payments – we've got you covered. Simply use Cash App to make your payment, and let us take care of the rest. It's quick, it's easy, and it's budget-friendly. Focus on your learning while we handle the logistics.
+With IXL Assist, say goodbye to tedious practice sessions. For just \25 points, unlock 30 minutes of focused practice time effortlessly. Whether it's math or English at a 9-10th-grade level, we've got your back. Let us handle the heavy lifting while you reap the rewards.
 
 ## Disclaimer: Guiding Your Learning Journey
 
